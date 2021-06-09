@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @martinwilliamprice
 - 👀 I’m interested in most things
-- 🌱 I’m currently learning GitHub
+- 🌱 I’m currently learning to tie my shoes
 - 💞️ I’m looking to collaborate on nothing as yet, will keep you posted
 - 📫 How to reach me - it's a secret
 
